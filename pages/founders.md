@@ -23,3 +23,4 @@ Nathan is the manager of the CEHS Coding website, Twitter and Slack. He also lea
 
 
 ## William Jordan
+William is a scrublord freshman, he's pretty cool though.
